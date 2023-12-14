@@ -30,6 +30,14 @@ What are your thoughts on the impact of quantum computing on Bitcoin? Let's disc
 
 ---
 
+
+
+https://github.com/QBlockQ/Bitcoin-on-Quantum-Computing/assets/121955547/9efbc989-8a63-4aed-be31-4726322a631d
+
+
+
+
+
 #QuantumComputing #BitcoinMining #BlockchainTechnology #Cryptocurrency #QBlock #Innovation #Technology
 
 ---
